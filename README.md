@@ -12,3 +12,4 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...📱📱📱📱mobiles
 - 📫 How to reach me: ...by seeing the roote map............🚑🚑🚑🚑🚑🚑🚑🚑🚑
 - my gmail....... maturupraneeth1@gmail.com
+- my URL https://praneethmaturu.github.io/
