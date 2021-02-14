@@ -10,6 +10,7 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate with my sir's
 - 🤔 I’m looking for help  to cr's
 - 💬 Ask me about ...📱📱📱📱mobiles
-- 📫 How to reach me: ...by seeing the roote map............🚑🚑🚑🚑🚑🚑🚑🚑🚑
+- 📫 How to reach me: ...by seeing the roote map............🚑🚑🚑🚑🚑🚑🚑🚑
 - my gmail....... maturupraneeth1@gmail.com
 - my URL https://praneethmaturu.github.io/
+- I intrested to play PUBG game
