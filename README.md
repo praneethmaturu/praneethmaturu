@@ -9,8 +9,8 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning ...c program🎥🎥🎥🎥🎥🎥🎥🎥🎥🎥
 - 👯 I’m looking to collaborate with my sir's
 - 🤔 I’m looking for help  to cr's
-- 💬 Ask me about ...📱📱📱📱mobiles
-- 📫 How to reach me: ...by seeing the roote map............🚑🚑🚑🚑🚑🚑🚑🚑
-- my gmail....... maturupraneeth1@gmail.com
+- 💬 Ask me about ...📱📱📱📱mobiles&Laptops
+- 📫 How to reach me: ...by istagram- @praneeth_maturu 
+- my gmail....... maturupraneeth@gmail.com
 - my URL https://praneethmaturu.github.io/
 - I intrested to play PUBG game
